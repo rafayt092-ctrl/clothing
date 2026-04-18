@@ -1,2 +1,2 @@
 # clothing
-xD
+dX
